@@ -1,1 +1,0 @@
-# qartwo.github.io
